@@ -1,0 +1,3 @@
+# Hello 
+It's Me Iwas wandering.......
+///นี้คือไฟล์ แก้ไข by N
